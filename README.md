@@ -9,4 +9,3 @@ Metin Süt / 1987 / İstanbul
 [Twitter](https://twitter.com/mtnsut)
 
 [My Web Site] (http://metinsut.com/)
-#under construction
