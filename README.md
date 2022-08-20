@@ -5,4 +5,5 @@ Metin Süt / 1987 / İstanbul
 
 
 [LinkedIn](https://www.linkedin.com/in/metinsut/)
+
 [Twitter](https://twitter.com/mtnsut)
